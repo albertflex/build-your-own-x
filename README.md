@@ -452,7 +452,7 @@
 * Help me to review [pending submissions](https://github.com/danistefanovic/build-your-own-x/issues) by leaving comments and "reactions"
 
 ## Not Related to Post
-* Find Properties with Nigeria [Nigeria Property Listing](https://nigeriapropertylisting.com) by "WB Digital Agency"
+* Find All Businesses in Nigeria [Sabi Business](https://sabibusiness.com) by "Sabi Business"
 
 ## License
 
